@@ -1,1 +1,3 @@
-# .github
+# *How to Change Your Life: Actionable Steps & Spiritual Wisdom | Shi Heng Yi Inspired*
+## *Discover how to change your life with practical strategies and spiritual insights from Shi Heng Yi. Learn discipline, consistency, self-belief, and the power of taking action now. Stop waiting—start transforming. Take one intentional action today and watch your life change forever. Transform your mindset, energy and destiny starting today.* [More details…](https://spiritualkhazaana.com/web-stories/how-to-change-your-life/)
+## #ChangeYourLife #ShiHengYi #SelfImprovement #Discipline #Motivation #PersonalGrowth #TakeAction #Transformation
